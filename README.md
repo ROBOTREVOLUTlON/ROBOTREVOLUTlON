@@ -14,11 +14,13 @@ $\color{#ADD8E6}  ‎   addie/wolpertinger  .$ <br>
 
 
   $\color{#42A5F5}  ‎   no clue .$ <br>
-$\color{#4FC3F7}  ‎   they/it/she .$ <br>
+$\color{#4FC3F7}  ‎   they/it .$ <br>
 
   <p align="center">
-  iwc. i dont wanna put a dni list rn
-    (other than that, feel free to int!!! i dont bite i PROMISE i love making conversation!
+    $\color{#1A66BB} iwc. i dont wanna put a dni list rn.$ <br>
+
+  
+  (other than that, feel free to int!!! i dont bite i PROMISE i love making conversation!
     im highkey shy so its better to whisper me.
     
 $\color{#1A66BB}  ‎   “ i ‎ am ‎ terrible ‎ at ‎ social‎  cues,‎  comforting‎  people‎ .$ <br>
