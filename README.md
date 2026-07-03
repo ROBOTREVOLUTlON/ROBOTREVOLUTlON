@@ -38,3 +38,4 @@ $\color{#1A66BB}  ‎   “ i ‎ am ‎ terrible ‎ at ‎ social‎  cues,‎
 <p align="left">
 art credit: $\color{#1A66BB}  ‎   “ rojen ”  .$ <br>
 
+<img width="607" height="273" alt="image" src="https://images.artfight.net/character/qr3J76pNKBM8MmGIJap556MeoRljIry5NgopEpGfi7L8Btl6B5kWQDCbi691.png?t=1783108346" />
